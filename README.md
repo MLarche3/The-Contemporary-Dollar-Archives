@@ -3,6 +3,9 @@ Here are previous broadcasts for new and old subscribers 🗞️
 This git page will be updated every week ❗
 Date Format {MM-DD-YYYY}
 
+4-20-2022
+{ https://ckarchive.com/b/e5uph7hp9er4o }
+
 4-13-2022
 { https://ckarchive.com/b/e5uph7hp99von }
 
