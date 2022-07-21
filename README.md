@@ -4,7 +4,7 @@ This git page will be updated every week ❗
 Date Format {MM-DD-YYYY}
 
 7-13-2022
-{ https://ckarchive.com/b/zlughnh44ze3z }
+{ https://ckarchive.com/b/e5uph7hpp8er2 }
 
 7-6-2022
 { https://ckarchive.com/b/xmuph6hrr0pd7 }
